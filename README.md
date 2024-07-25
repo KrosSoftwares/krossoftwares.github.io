@@ -1,1 +1,0 @@
-# krossoftwares.github.io
